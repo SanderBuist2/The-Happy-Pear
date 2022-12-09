@@ -8,3 +8,24 @@
     8. Next, add the cooked noodles and the chopped pak choi and cook for another few minutes.
     9. Remove from the heat. Roughly chop the fresh coriander or basil and use them as garnish for each serving together with sprinkles of roasted peanuts.
     10. It’s nice served with some pickled ginger and a wedge of lime on each serving.
+
+- Ingredients:
+- 300 g Wholewheat or brown rice noodles 4 nests
+- 1/2 thumb-sized piece of ginger 15g
+- 1 red chilli medium heat
+- 1 bunch of scallions/ spring onions
+- 1 carrot
+- 150 g oyster mushrooms or mushroom of choice
+- 1 head of pak choi/100g baby spinach
+- 1.5 tbsp oil
+- For the dressing:
+- 250 ml coconut milk
+- 2 tbsp peanut butter
+- juice of 2 limes
+- 4 tbsp tamari
+- 1 tbsp maple syrup
+- To garnish:
+- a small bunch of fresh coriander/basil 10g
+- 3 tbsp salted roasted peanuts
+- pickled ginger
+- wedges of lime
